@@ -1,1 +1,1 @@
-https://wxjjqwq=.github.io
+https://wxjjqwq.github.io
